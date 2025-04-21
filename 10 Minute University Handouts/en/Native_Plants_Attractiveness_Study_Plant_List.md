@@ -1,5 +1,3 @@
-
-
 Native Plants Attractiveness Study --- Plant List  
 A study by Aaron Anderson and Gail Langellotto, OSU Garden Ecology Lab  
 *Results from the 2017 and 2018 field seasons are abbreviated as follows: A – Top attractors of total bees in 

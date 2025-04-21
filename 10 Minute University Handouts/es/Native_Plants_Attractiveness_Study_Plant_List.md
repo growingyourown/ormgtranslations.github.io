@@ -1,5 +1,3 @@
----
-
 Estudio de Atractividad de Plantas Nativas --- Lista de Plantas  
 Un estudio por Aaron Anderson y Gail Langellotto, OSU Garden Ecology Lab  
 *Los resultados de las temporadas de campo 2017 y 2018 se abrevian de la siguiente manera: A – Principales atractores de abejas totales en 2017, B – Principales atractores de abejas nativas en 2017, C – Principales atractores de abejas totales en 2018, D – Principales atractores de abejas nativas en 2018.  
