@@ -96,5 +96,3 @@ Sisyrinchium idahoense
 
 Solidago canadensis  
 **Goldenrod**  | A,B,C,D | 다년생 | 노란색  
-
----
