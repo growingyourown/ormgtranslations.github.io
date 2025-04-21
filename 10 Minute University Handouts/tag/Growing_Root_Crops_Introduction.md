@@ -1,8 +1,8 @@
-# 10-Minute University™  
-Ang Clackamas County Master Gardener Association sa pakikipagtulungan at pagsuporta sa  
-OSU Extension Master Gardener™ Program  
+10-Minute University™
+Ang Clackamas County Master Gardener Association sa pakikipagtulungan at pagsuporta sa
+OSU Extension Master Gardener™ Program
 
-## Panimula sa Pagtatanim ng Root Crops  
+## Panimula sa Pagtatanim ng Root Crops
 Ang mga root crops ay may lugar sa bawat hardin ng gulay. Ang mga ito ang unang at huling gulay na inaani, at sa tamang pag-iimbak sa bahay, magkakaroon ka ng sariwang suplay hanggang taglamig. Ang mga crops na ito ay perpekto rin dahil maliit lamang ang espasyo na kinakailangan sa hardin, maaaring anihin sa mahabang panahon, at nagbibigay ng malalaking dami ng pagkaing sagana sa enerhiya. Ang mga ito ay maunlad sa raised bed, in-ground, at container gardens. Ang kasaysayan ng paghahalaman ay nagbabanggit ng pagtatanim ng root crops ng mga sinaunang kabihasnan sa Mediterranean Europe, Asia, Africa, Oceania, at South America. Ang kaalaman na ang beets, carrots, turnips, patatas, sweetpotatoes, sibuyas, at parsnips ay naging popular sa loob ng mahigit 5,000 taon ay nagpapakita na ang mga root crops ay nagtagumpay dahil madali itong itanim at masarap kainin.  
 
 Ang "root vegetable" ay isang kategorya sa kusina, hindi isang botanical na isa. Ang botanika ay nagtatangi sa tunay na ugat tulad ng taproots at tuberous roots mula sa mga hindi ugat o geophytes gaya ng bulbs, corms, rhizomes, at tubers.  
