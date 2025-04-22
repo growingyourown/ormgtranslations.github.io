@@ -1,4 +1,3 @@
----
 
 ### 原生植物吸引力研究 —— 植物列表  
 由 Aaron Anderson 和 Gail Langellotto，俄勒冈州立大学花园生态实验室进行的研究  

@@ -1,4 +1,3 @@
----
 
 ### Estudo de Atratividade de Plantas Nativas — Lista de Plantas  
 Um estudo por Aaron Anderson e Gail Langellotto, Laboratório de Ecologia de Jardins da OSU  

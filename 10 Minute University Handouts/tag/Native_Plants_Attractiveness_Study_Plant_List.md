@@ -1,4 +1,3 @@
----
 
 ### Pag-aaral ng Kaakit-akit ng Katutubong Halaman --- Listahan ng Halaman  
 Isang pag-aaral nina Aaron Anderson at Gail Langellotto, OSU Garden Ecology Lab  

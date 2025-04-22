@@ -1,4 +1,3 @@
----
 
 ### Nghiên Cứu Về Sự Thu Hút Của Cây Bản Địa — Danh Sách Cây  
 Một nghiên cứu bởi Aaron Anderson và Gail Langellotto, Phòng thí nghiệm Sinh thái Vườn OSU  

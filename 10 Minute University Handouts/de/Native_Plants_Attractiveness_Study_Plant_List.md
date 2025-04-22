@@ -1,4 +1,3 @@
----
 
 ### Studie zur Attraktivität von einheimischen Pflanzen --- Pflanzenliste  
 Eine Studie von Aaron Anderson und Gail Langellotto, OSU Garden Ecology Lab  

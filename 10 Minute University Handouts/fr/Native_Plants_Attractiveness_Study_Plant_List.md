@@ -1,4 +1,3 @@
----
 
 ### Étude sur l'attractivité des plantes indigènes — Liste des plantes  
 Une étude par Aaron Anderson et Gail Langellotto, OSU Garden Ecology Lab  

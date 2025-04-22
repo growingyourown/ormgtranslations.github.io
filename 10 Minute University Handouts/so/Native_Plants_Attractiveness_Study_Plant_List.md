@@ -1,4 +1,3 @@
----
 
 **Daraasad Ku Saabsan Soo Jiidashada Dhirta Dabiiciga ah — Liiska Dhirta**  
 Daraasad uu sameeyay Aaron Anderson iyo Gail Langellotto, OSU Garden Ecology Lab  
